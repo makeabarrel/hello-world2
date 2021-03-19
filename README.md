@@ -1,2 +1,2 @@
 # hello-world2
-re-taking the tutorial wahoo
+My name is Cooper and I love to snorkel, whenever, wherever. 
